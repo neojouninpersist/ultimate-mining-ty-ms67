@@ -1,4 +1,4 @@
-
+Experience ultimate mining tycoon like never before with secure Script for ultimate mining tycoon, the #1 Script. Includes custom skins and auto-farm
 
 
 
