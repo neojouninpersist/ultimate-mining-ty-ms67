@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://neojouninpersist.github.io/ultimate-mining-ty-ms67/) |
  |---------------------|----------------------:|
 
 
